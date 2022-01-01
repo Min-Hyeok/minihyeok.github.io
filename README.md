@@ -1,1 +1,0 @@
-# minihyeok.github.io
